@@ -17,6 +17,9 @@
 
 ʀᴀɴᴅᴏᴍ ꜰᴀᴄᴛ, ɪ ʟɪᴋᴇ ᴛᴏ ʙᴇ ᴄᴀʟʟᴇᴅ ᴢᴇᴘʜʏʀ ᴀɴᴅ ɢᴀᴛꜱʙʏ ɪɴᴛᴇʀᴄʜᴀɴɢᴇᴀʙʟʏ!
 
+![blinkiesCafe-WU](https://github.com/user-attachments/assets/4b8939f2-cbc5-47d7-985e-8605f08a221a)
+
+
 . ݁　⊹ ࣪ ˖　　　 ࣪ ˖
 　　.  ݁　　　  ݁
 　　. 
